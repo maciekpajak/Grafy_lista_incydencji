@@ -1,0 +1,1 @@
+# PAMSI.PROJEKT2
